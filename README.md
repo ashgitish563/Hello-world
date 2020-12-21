@@ -1,6 +1,6 @@
 # Hello-world
 it is for practice.
-do not take it serious.
+stay home be safe.
 
 congratulation!
 something is better than nothing.
